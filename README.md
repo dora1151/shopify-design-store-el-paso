@@ -1,1 +1,0 @@
-# shopify-design-store-el-paso
